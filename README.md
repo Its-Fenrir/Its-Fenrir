@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Its-Fenrir
 - 👀 I’m interested in some techy things.
-- 🌱 I’m currently learning how to navigate this thing called life.
+- 🌱 I’m currently learning lots.
 - 💞️ I’m looking to collaborate on ...
 - ⚡ Fun fact: ...
 
